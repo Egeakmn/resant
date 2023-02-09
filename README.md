@@ -1,0 +1,2 @@
+# resant
+Güzel.gordugunden dolayı 
